@@ -2,7 +2,7 @@
 - 👀 desenvolvimento profissional
 - 🌱 manutenção em máquinas florestais
 -    area de produção industrial
- 📫 telefone e email
+ 📫 telefone 38 998570434 e email jfernandorodrigues@yahoo.com.br
 
 <!---
 Fernandorodrigues1000/Fernandorodrigues1000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
